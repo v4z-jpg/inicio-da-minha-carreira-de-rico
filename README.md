@@ -2,4 +2,4 @@
 
 sla
 
-vai logo no README acima <3
+po mane nsei mt oq escrever aq entao so vou digitando oq passa na minha cabeça....
